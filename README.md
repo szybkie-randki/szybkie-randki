@@ -7,3 +7,5 @@ Jeśli szukasz szybkiego połączenia lub poważnego związku, wypróbuj naszą 
 Najlepsze w szybkich serwisach randkowych jest to, że możesz przeszukiwać tysiące singli w Twojej okolicy i znaleźć tego, który jest dla Ciebie odpowiedni.
 
 Kiedy dołączysz do najlepszego darmowego serwisu randkowego w sieci, możesz od razu zacząć spotykać ludzi o podobnych poglądach. Niezależnie od tego, czy szukasz połączenia, czy czegoś poważniejszego, na naszej stronie znajdują się mężczyźni i kobiety, którzy podzielają Twoje zainteresowania i chcą poznać kogoś takiego jak Ty. Sprawdź naszą darmową witrynę randkową już dziś!
+
+https://szybkierandki.rzeszow.pl/
