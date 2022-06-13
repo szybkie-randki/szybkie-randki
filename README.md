@@ -1,4 +1,4 @@
-### Hi there 👋
+### Szybkie Randki Rzeszów - Witamy 👋
 
 <!--
 **szybkie-randki/szybkie-randki** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
